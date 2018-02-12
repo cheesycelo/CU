@@ -1,1 +1,1 @@
-# CU
+I want to learn how to built up a website for my own homepage or how to built and design an app for a project I'm working on at the moment. I'm completly new to developing and coding but I'm warry interesstet how all this works.
